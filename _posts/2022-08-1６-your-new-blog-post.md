@@ -8,7 +8,7 @@ write sth
 
 first of all, I would like to do the 7th thing.
 I do not know if someone is watching or will watch me. I have to take care of my words.
-So I can start from the weather, recently, the weather is very hot, the weather of 40 centigrades has continued more than 10 days. But I feel not so bad, I think
+So I can start from the weather, recently, the weather is very hot, days around 40 centigrades has continued more than 10 days. But I feel not so bad, I think
 there are some reasons as follow:
 1, I am in health
 2, I always am in library, where is spacious and cool.

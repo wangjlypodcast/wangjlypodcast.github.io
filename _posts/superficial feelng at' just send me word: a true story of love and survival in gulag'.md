@@ -27,4 +27,4 @@ there was a relative free period after stalin died. some western authors went to
 
 documents responded that era.
 
-An English author wrote a story which is too real as a literature in my opinion. but it has the power to stun me.
+An English author wrote a story which is too real as a literature in my opinion. but it has the power to stun and astound me.
